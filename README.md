@@ -1,0 +1,1 @@
+A message to a certain one and only V. I love you very much when im making this ur really sick and i haven't been able to express how much i love you as much as i can and it doesn't seem like i love you but i really do.
